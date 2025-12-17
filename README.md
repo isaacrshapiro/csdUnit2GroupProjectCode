@@ -14,4 +14,4 @@ Ancient China pictures: https://en.wikipedia.org/wiki/History_of_China
 Ancient Egypt pictures: https://en.wikipedia.org/wiki/Ancient_Egypt
 Anccient Mesopotamia: https://boisestate.pressbooks.pub/arthistory/chapter/mesopotamia/
 
-IF you would like your photos taken off or attributed further, please send me a message at irs.assistant@icloud.com.
+-# If you would like your photos taken off or attributed further, please send me a message at irs.assistant@icloud.com.
